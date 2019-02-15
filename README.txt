@@ -1,0 +1,1 @@
+This folder is the collection of all my projects finished and unfinished. IF you have any questions feel free to ask.
